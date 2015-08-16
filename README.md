@@ -1,2 +1,65 @@
-# initailg
-lolpleb
+[FONT=Times New Roman][SIZE=4][B][U]Introduction[/U][/B][/SIZE][/FONT]
+Hello, I'm Evelyn, or better known as Coherence in Growtopia/Rtsoft forums. I'm just your typical, mischievous 15 year old girl who's an internet troll, sometimes. Ahh... as it was an amazing Growtopia experience for me a few months ago before my suspension. I'm glad to have met amazing friends over the past year or so. I remember when I was a newbie, got put down by others in-game and even my real life classmates would pick on me simply because I was a newbie. I even had a really inappropriate name to troll others/get reactions from strangers in worlds.
+
+[B][FONT=Times New Roman][SIZE=4][U][url=http://www.rtsoft.com/forums/showthread.php?69408-Hacker]"Hacker"[/url][/U][/SIZE][/FONT][/B]
+They even raid my very first world in the past (MUTATIONZ), took everything I had (not much really, but it was quite a good amount for a newbie like me in those days). All of my classmates entered my world and took everything I had. But it didn't stop me from giving up, I wanted to be richer than them. Never ever went to scam them after all the crap they gave me. [B]Note: Those were the days when Growtopians were able to place their locks and doors outside of someone else's lock even though they're at spawn.[/B]
+
+[B][U][SIZE=5][FONT=Times New Roman][url=http://www.rtsoft.com/forums/showthread.php?70499-Update-suggestion]Pinballs, Sugarcanes, Worlds![/url][/FONT][/SIZE][/U][/B]
+Visited one of them a few days later while he was farming his pinballs, pulled me and blocked off the platform saying that a noob like me shouldn't come close to him and stuff like that. I asked if I could get at least one seed to try it out and he said "lol noob". I felt really oppressed at that time. Come to think of it, I really hated him for doing that. Few days went by as I farmed some sugarcane before the nerf for it happened (I think). I forgot the world name and it had hundreds of sugarcanes, the world had a big lock in it at the spawn though. I got really frightened and upset at the same time when I forgot the world name. I had a second farming world as my old world got hundreds of sugarcane stolen by another close friend of mine. I asked forumers for help but no one did, they just view the thread before moving on to the next one. Forumers still "seen-zone" others till today.
+[B][url=http://www.rtsoft.com/forums/showthread.php?72787-Any-Advice-For-Parkour-Maps]Asking for advice in building parkour maps was also seen-zoned by people, and I couldn't find anyone to add me back then.[/B][/url]
+
+[B][U][FONT=Times New Roman][SIZE=5][url=http://www.rtsoft.com/forums/showthread.php?73106-Building-a-parkour-world!-I-need-your-help!-D]Building my world and asking for advice[/url][/SIZE][/FONT][/U][/B]
+Few days went by as usual, I treated them as close friends (all of those who scammed and griefed/stole from me) still. Then I spent around $100+ on gems to get richer and to build my first ever parkour (COHERENCEPARKOUR). I used to be inspired by the original SkyJumps but I was too poor to even afford any of the wonderful materials it had in that world. I wanted to also prove a point that noobs can also make hard (it was difficult for players back then) parkour worlds. It had a good run before it died out and I was desperate to get wls and gems, [url=http://www.rtsoft.com/forums/showthread.php?75454-I-know-this-is-in-the-wrong-sub-forum-but]sold it for a really ripped off price.[/url] [url=http://www.rtsoft.com/forums/showthread.php?75474-Selling-world!]Then I got even more desperate.[/url] I gave away prizes during the short, but good run it had such as 10 world locks as a prize for something as simple as 14 levels of parkour(ing).
+
+[url=http://www.rtsoft.com/forums/showthread.php?77522-New-command-ideas!]My first suggestions, and the birth of suggesting "/pullall" as a command[/url] had some negative replies, but it was the birthplace of the suggestion for /pullall. Haha. Also trying to prove a point that I wasn't a major jerk as I am right now, I guess... Anyway, I made like a [url=http://www.rtsoft.com/forums/showthread.php?78086-Drawing-competition!]parody drawing contest thread[/url] in the past, I felt really happy that the forumers whom I've respected such as Diether, AntEater, iOliver, Boomer and MrSword replied.
+[B]Also stopped using the sub-titles thing that I did above lol.[/B] I also remembered that all of us wanted to get the world "WORLDLOCK", what we didn't know that it had small locks all the way below, some dude got it and most of us got really angry/sad. Anyway, Massacre was the first ever mod that I ever met, and I had some fun with him back then as stuff. He really made me laugh when he received [url=http://www.rtsoft.com/forums/showthread.php?82040-Sorry-Massacre]malpractice[/url]. KillaFlame was also one of the first few people I've met too, he was really kind back then, maybe because he wanted to be a mod and he acted as a nice guy? Managed to pull it off on me though, he was really really sweet in-game.
+
+Bioscythe... he's a really amazing friend, really chill to hangout with, no greed, no huge ego. I was rooting for Equine back then when the Eyedea vs Equine drama took place. To put things short and simple, Eyedea made a contest to piss off Equine and [url=http://www.rtsoft.com/forums/showthread.php?83247-BioScythe]BioScythe won the contest.[/url] Stuff happened, I didn't realise that I was in the wrong back then. I still felt that I was right until Jairrocket closed the thread. I really took some time to re-read everything, I got really mad at myself for doing something so stupid after my senses came to me. I got really ashamed of myself and I stopped using the forums for 6 days, didn't dare to talk to anyone and went back being a social outcast. I apologized to him in the end even though no one knew about it, I sold a few items of mine to repay the 300+ gold blocks I stole (and recycled) from him. People continued to bash me a few days/weeks later when I replied/made other threads though.
+
+I found a world back then with [url=http://www.rtsoft.com/forums/showthread.php?89175-I-found-a-world-with-2-Bedrock-Blocks-out-of-place]2 Bedrocks being out of place[/url], it was named [url=http://www.rtsoft.com/forums/showthread.php?90715-How-much-is-SKYDOESMINECRAFT-worth]SKYDOESMINECRAFT[/URL]. I was excited by the discovery of it as I've never saw anything like it before so I did Super-Broadcasts there regularly. There was and still is huge locked by Hakanss now as I sold the world to him, I got desperate for world locks as I wanted to build more. Sold it for a really cheap price of 5 wls, I regretted it. But hopefully he can build it soon. I also made a character named "[url=http://www.rtsoft.com/forums/showthread.php?90307-ShemaleKhan]Shemalekhan[/url] in the past for the lulz in it. The978 made me giggle in that rely to the ShemaleKhan thread. [url=http://www.rtsoft.com/forums/showthread.php?91171-Bactobene]And here's a really funny thread of me showing people that Bactobene was overreacting[/url], you know the ISP sign thing where only the viewer can see it? I had that in my signature and he overreacted.
+
+[url=http://www.rtsoft.com/forums/showthread.php?91956-I-m-thinking-of]I remember when auto-runs was the trend in Growtopia.[/url] I wanted to make one but the majority of the forumers despised them and the owners who owned them, so I asked them if I should make one as I wanted my rep to be as "clean" as possible. Evets also got the world called TWERK, so we were deciding what to do with the [url=http://www.rtsoft.com/forums/showthread.php?93386-Suggestions-for-the-world-quot-TWERK-quot]world[/url]. After the auto run trend, price worlds were the bomb. I really meant the bomb, it was so popular back then. I bought a world called [url=http://www.rtsoft.com/forums/showthread.php?101169-Hiring-Admins-for-GROWTOPEDIA!]Growtopedia[/url] and started finding for admins. I used to determine if someone who will help out by the applications - how they fill the applications and stuff. I got a little curious about why [url=http://www.rtsoft.com/forums/showthread.php?106029-Question-about-Newbies]newbies say trade[/url] all the time. Oh well, newbs be newbs.
+
+I got really depressed during this period cause of stuff and what not, [url=http://www.rtsoft.com/forums/showthread.php?116147-An-apology]I decided to make a public apology even though it was months after the incident.[/url] There's also this [url=http://www.rtsoft.com/forums/showthread.php?111788-RANT-Some-Growtopians]rant[/url] that I made back then though. Sounded like an extremely huge mini-mod in that cringeworthy thread. Remember all those inappropriate fan-fictions made? It all started [url=http://www.rtsoft.com/forums/showthread.php?111396-Areodax-and-TrishaxKris-More-than-just-cousins]here[/url]. I had the inspiration to build another parkour world, it was a period of 3 months that I took to build. It was also a huge game-changing period for me as I started off building a really small portion of it as a really poor peasant and when I got slightly wealthier. I was heavily (emphasizing on heavily) inspired by FROGPARKOUR which led me to build one of Growtopia's largest parkour worlds. Seth also [url=http://www.rtsoft.com/forums/showthread.php?107267-Seth-gave-me-jumpscares]visited[/url] the world once and nuked Trisha, Areo and I with Toxic waste.
+
+I'll just copy this off the original [url=http://www.rtsoft.com/forums/showthread.php?111384-Welcome-to-Chameleon-Parkour!]thread[/url]. This world really meant a lot to me back then.
+
+[FONT=Arial][SIZE=7][B]CHAMELEONPARKOUR![/B][/SIZE][/FONT]
+
+This world is one of Growtopia's LARGEST parkour! It gets harder and harder as the stages go by, so hope you practiced alot, because you will need all of your skills to past this long, but rewarding parkour!
+
+Some of its features include :
+• The classic song from FROGPARKOUR!
+• 85 Levels to parkour on!
+• 10 hidden letters scattered around the parkour!
+• Both Jammers!
+• Night weather machine!
+• Vip area for people who collects and writes down the 10 hidden letters to the password door!
+
+And many more!
+
+So, what are you waiting for? Go in and head over to CHAMELEONPARKOUR! You won't regret it!
+[pic]http://www.growtopiagame.com/worlds/chameleonparkour.png[/pic]
+^ Really a huge thanks to Evets for being with me throughout a year of friendship we have, but we don't really talk much to each other anymore. Here's the [url=http://www.rtsoft.com/forums/showthread.php?116914-Selling-CHAMELEONPARKOUR]thread[/url] of CHAMELEONPARKOUR getting nuked and was selling it too.
+
+
+A second world of mine was for the fire event and was surprisingly the most popular when the event started. Not worth a mention though. Current owner ruined everything. Also, [url=http://www.rtsoft.com/forums/showthread.php?117787-TrishaxKris-and-Areodax-Trisha-s-secret-diary]here's the second[/url] inappropriate (sorta) fan fic that was made before all the frenzy for it started. (It's just a parody of [I]Shrek is love, Shrek is life.[/I])
+
+
+[B][U]Deepest secrets and stuff.[/U][/B]
+I'm depressed since I was 13, it comes in once in a while, or even so often till now, I was playing Growtopia with Trishaxkris last year and I just got really sad/emotional, she helped me through it and stuff. Not really much about it. Got even more depressed and attempted suicide around the end of the year, landed myself in the hospital. Not really that serious like jumping off a building, but still life threatening though. Trisha had and always was caring for her friends such as Areo and I and Phanton and others. This may come off as a shock to probably Areo or something but I said this in Growtopia kik before...
+I uhh... there's obviously people such as a mathematician who codes the sky (implication of a twofaced minimod forumer) who would judge me for this but...
+[spoiler]
+I had a crush on Trisha.[/spoiler]
+
+Right now? This is my final thread, thanks for everything ya'll.
+Thanks Evets, for being there for me, always. For helping me. For everything. I'm sorry for the things I've put you through a few months ago. Like I've said, you're a great person. You're a special kind of special. Love ya to death. <3
+Thanks Trisha and Areo for the great memories I also had with ya'll.
+
+Thanks for everyone for everything, really. But no one really wants me here, not even the developers, and I can understand that from the bad attitude I gave. 
+
+Sorry to eFest and initialg lol, it isnt even 600 words but its something. Cant really think of anything to write. Also, met someone really amazing called Cocomonkey a few few few months back. I'll not beat around the bush and just go straight to the point - I really wished I had a sister like Coco. But that ain't gonna happen. Honestly, I'm really beaten up right now. Really feeling like doing really silly stuff but Ill just sign off here I guess.
+
+Thanks again, Trisha, Coco (for the vids), Areo and Evets for everything. ;)
+
+- Coherence. :wave:
